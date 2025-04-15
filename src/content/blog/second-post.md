@@ -77,4 +77,4 @@ With skilled technicians equipped with jumper cables and portable boosters, we w
 
 Beyond just a jump-start, we provide additional checks and support to prevent future breakdowns, offering peace of mind when driving. 
 
-For fast, dependable service, call us at 0797466737 to get reliable jump-start services. 
+For fast, dependable service, call us at 0797466737 to get reliable jump-start services. yess. 
