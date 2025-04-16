@@ -52,4 +52,4 @@ Our services stretch across Nairobi from the CBD, Ngong Road, to Mombasa Road. W
 
 We’re always on call with everything needed to handle car repairs, day or night. 
 
-Call us at **0797466737,** and we will come and help you where your car has broken down, no matter your location in the cityy. 
+Call us at **0797466737,** and we will come and help you where your car has broken down, no matter your location in the city.
