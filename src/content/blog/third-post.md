@@ -19,7 +19,7 @@ Beyond car lock-out assistance, we program new keys, replace lost ones, fix brok
 
 Call us today at 0797466737 to get car lock-out assistance service. 
 
-This guide will discuss the steps to take during a car lockout, available lockout services in Nairobi, the best assistance options, and the typical costs involved..
+This guide will discuss the steps to take during a car lockout, available lockout services in Nairobi, the best assistance options, and the typical costs involvedd. 
 
 ## Steps to Take During a Car Lock Out in Nairobi
 
