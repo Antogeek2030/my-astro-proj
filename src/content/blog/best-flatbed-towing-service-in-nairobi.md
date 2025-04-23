@@ -51,7 +51,7 @@ If so, using a flatbed towing service could protect your car from damage.
 Once your car is loaded on the flatbed, it is kept steady with tightly secured straps for the whole trip, no matter the distance.
 
 Your car won’t pass through bad roads with potholes, preventing your tires from grinding and your suspension from breaking. 
-
+75-gallon-aquarium
 ### Versatile in Nature
 
 The setup for flatbed trucks accommodates transporting a wide range of cars, from personal cars, SUVs, trucks, and even motorcycles. Most towing service providers have tow trucks with different designs of flatbeds to meet the needs of all clients. 
