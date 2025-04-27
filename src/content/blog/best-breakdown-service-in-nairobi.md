@@ -1,6 +1,6 @@
 ---
-title: "Best Flatbed Towing Service in Nairobi"
-description: "Need a flatbed tow truck service to transport your vehicle within Nairobi ir distance places? Hire our breakdown company for fast and efficiedn service "
+title: "Best Breakdown Service in Nairobi"
+description: "Need a breakdown service you can rely on to safely transport your vehicle to different places across Nairobi? Hire our breakdown company for fast and efficient service "
 pubDate: "April 24 2024"
 ---
 With over 20 breakdown and towing companies in Nairobi, only a few stand out.
